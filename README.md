@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mzada
+- 👋 Hi, My name is Matheus, I’m from Brazil, countryside of São Paulo
 - 👀 I’m interested in Games; music, in specific funk; and circus
 - 🌱 I’m currently learning I am currently learning system development at a technical level and English in free time
 - 📫 How to reach me: my instagram (@015_m4tt)
